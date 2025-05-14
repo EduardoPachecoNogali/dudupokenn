@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dudupokenn
+- 👀 I’m interested in C++ // JS
+- 🌱 I’m currently learning JS
+- 💞️ I’m looking to collaborate on ANYTHING
+- 📫 How to reach me dudupacheconogali@gmail.com
